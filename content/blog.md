@@ -1,0 +1,1 @@
+Blog post for DigitalMZA — Premium digital products and templates for SA businesses
